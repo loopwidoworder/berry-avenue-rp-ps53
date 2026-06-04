@@ -1,4 +1,4 @@
-#  
+#  rare Script for jujutsu infinite is the best jujutsu infinite Script, featuring undetectable and teleport. Safe and powerful for all your needs.
 
 
 
